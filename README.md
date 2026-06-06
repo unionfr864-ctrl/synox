@@ -1,0 +1,2 @@
+# synox
+trading finance 
